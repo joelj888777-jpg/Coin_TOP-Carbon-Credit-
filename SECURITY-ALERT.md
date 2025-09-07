@@ -15,3 +15,6 @@ Thank you for your understanding and vigilance.
 
 Best,  
 Joel
+
+I am back now can i get some help with file 
+i need to run this before they come on again
